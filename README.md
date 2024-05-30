@@ -12,9 +12,9 @@
 
 微信扣扣粉丝群：https://51sp.me/?path=/qun.html 禁止直接点击访问）请复制链接粘贴到浏览器
 
-失联获取最新地址方法1: https://github.com/51cg888/51cg/blob/main/51cg.txt （禁止直接点击访问）请复制链接粘贴到浏览器
+失联获取最新地址方法1: https://github.com/51shipin/51shipin （禁止直接点击访问）请复制链接粘贴到浏览器
 
-失联获取最新地址方法2: 📧发任意内容到邮箱 51cgfun@gmail.com （禁止直接点击访问）请复制链接粘贴到邮件App
+失联获取最新地址方法2: 📧发任意内容到邮箱 51shipinw@gmail.com （禁止直接点击访问）请复制链接粘贴到邮件App
 
 《重生之我不是舔狗》456集已更新：https://51sp.me/?path=/archives/143255/ （禁止直接点击访问）请复制链接粘贴到浏览器
 
